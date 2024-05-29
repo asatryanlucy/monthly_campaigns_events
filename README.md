@@ -1,0 +1,1 @@
+# monthly_campaigns_events
